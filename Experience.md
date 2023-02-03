@@ -34,6 +34,8 @@ jakzuzka18@gmail.com
 - Visual identity
 - Typography
 
+
+
 ### CREATIVE TOOLS 
 - Adobe Creative Cloud (Photoshop Illustrator
 InDesign)
@@ -71,15 +73,15 @@ I design infographics and photograph products for a Germany-based waste manageme
 
 
 
-
 #### ROBEETO - PRAGUE - GRAPHIC DESIGN
 
 2019
 
 I designed and managed social media content for an online service marketplace. They offer (or offered, do they still exist?) various services, from babysitting and dog walking to photography. I collaborated remotely with a small team of five for one year/six months (or how ever long you worked there).
 
-
-
+ 
+ 
+ 
 
 ### EDUCATION
 #### University of Creative Communication
