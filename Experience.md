@@ -14,13 +14,20 @@ jakzuzka18@gmail.com
 
 
 ### PERSONAL VALUES
-Cool uder stress         
-Lover of learning         
-Team player             
+Cool uder stress 
+
+Lover of learning  
+
+Team player
+
 Time management
+
 Optimism
+
 Curiosity
+
 Humility
+
 Creativity
 
 
