@@ -50,15 +50,25 @@ InDesign)
 
 ### WORK EXPERIENCE
 FREELANCE - Prague - PHOTO/VIDEOGRAPHER
+
 2020 - present
+
 I focus on telling love stories. Storytelling through capturing weddings, portraits, family sessions, and recording podcasts. I often work solo or with my partner in a small team.
 
+
+
 KAUFBAUER - Prague - GRAPHIC DESIGN
+
 2021 - present
+
 I design infographics and photograph products for a Germany-based waste management company. You know — those bright green city trash cans — and compose bins to reduce and recycle organic waste. (Fun stuff like that.) And I get to work remotely from home in Prague.
 
+
+
 ROBEETO - PRAGUE - GRAPHIC DESIGN
+
 2019
+
 I designed and managed social media content for an online service marketplace. They offer (or offered, do they still exist?) various services, from babysitting and dog walking to photography. I collaborated remotely with a small team of five for one year/six months (or how ever long you worked there).
 
 
