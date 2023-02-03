@@ -4,8 +4,11 @@
 
 ### GET IN TOUCH 
 Zuzana Jakušová
+
 Photographer and video maker
+
 jakzuzka18@gmail.com
+
 +420 604 823 580
 
 ### PERSONAL VALUES
