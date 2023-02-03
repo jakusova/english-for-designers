@@ -32,18 +32,18 @@ jakzuzka18@gmail.com
 - Visual identity
 - Typography
 
-CREATIVE TOOLS 
-Adobe Creative Cloud (Photoshop Illustrator
+### CREATIVE TOOLS 
+- Adobe Creative Cloud (Photoshop Illustrator
 InDesign)
-Figma
-DaVinci Resolve
+- Figma
+- DaVinci Resolve
 
 
 
 ### LANGUAGES
-Czech = native
-English = fluent
-German = needs work
+- Czech = native
+- English = fluent
+- German = needs work
 
 
 
