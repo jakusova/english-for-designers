@@ -11,6 +11,8 @@ jakzuzka18@gmail.com
 
 +420 604 823 580
 
+
+
 ### PERSONAL VALUES
 Cool uder stress         
 Lover of learning         
@@ -20,6 +22,8 @@ Optimism
 Curiosity
 Humility
 Creativity
+
+
 
 ### SKILLS
 Photo and video production
@@ -34,10 +38,15 @@ InDesign)
 Figma
 DaVinci Resolve
 
+
+
 ### LANGUAGES
 Czech = native
 English = fluent
 German = needs work
+
+
+
 
 ### WORK EXPERIENCE
 FREELANCE - Prague - PHOTO/VIDEOGRAPHER
@@ -52,6 +61,9 @@ ROBEETO - PRAGUE - GRAPHIC DESIGN
 2019
 I designed and managed social media content for an online service marketplace. They offer (or offered, do they still exist?) various services, from babysitting and dog walking to photography. I collaborated remotely with a small team of five for one year/six months (or how ever long you worked there).
 
+
+
+
 ### EDUCATION
 University of Creative Communication
 2020 - present
@@ -60,6 +72,9 @@ graphic design, Prague, bachelor's degree
 Otto Wichterle Technical High School - Náchod
 2016 - 2020
 graphic design
+
+
+
 
 ### REFERENCES
 Kamil Prouza - Kaufbauer 
