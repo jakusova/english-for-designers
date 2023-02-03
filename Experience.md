@@ -14,30 +14,23 @@ jakzuzka18@gmail.com
 
 
 ### PERSONAL VALUES
-Cool uder stress 
-
-Lover of learning  
-
-Team player
-
-Time management
-
-Optimism
-
-Curiosity
-
-Humility
-
-Creativity
+- Cool uder stress 
+- Lover of learning
+- Team player
+- Time management
+- Optimism
+- Curiosity
+- Humility
+- Creativity
 
 
 
 ### SKILLS
-Photo and video production
-Social media management
-Print design and prepress
-Visual identity
-Typography
+- Photo and video production
+- Social media management
+- Print design and prepress
+- Visual identity
+- Typography
 
 CREATIVE TOOLS 
 Adobe Creative Cloud (Photoshop Illustrator
