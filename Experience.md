@@ -49,7 +49,7 @@ InDesign)
 
 
 ### WORK EXPERIENCE
-FREELANCE - Prague - PHOTO/VIDEOGRAPHER
+#### FREELANCE - Prague - PHOTO/VIDEOGRAPHER
 
 2020 - present
 
@@ -57,7 +57,9 @@ I focus on telling love stories. Storytelling through capturing weddings, portra
 
 
 
-KAUFBAUER - Prague - GRAPHIC DESIGN
+
+
+#### KAUFBAUER - Prague - GRAPHIC DESIGN
 
 2021 - present
 
@@ -65,7 +67,10 @@ I design infographics and photograph products for a Germany-based waste manageme
 
 
 
-ROBEETO - PRAGUE - GRAPHIC DESIGN
+
+
+
+#### ROBEETO - PRAGUE - GRAPHIC DESIGN
 
 2019
 
@@ -75,11 +80,11 @@ I designed and managed social media content for an online service marketplace. T
 
 
 ### EDUCATION
-University of Creative Communication
+#### University of Creative Communication
 2020 - present
 graphic design, Prague, bachelor's degree
 
-Otto Wichterle Technical High School - Náchod
+#### Otto Wichterle Technical High School - Náchod
 2016 - 2020
 graphic design
 
