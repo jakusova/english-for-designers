@@ -16,4 +16,4 @@ I am a photographer and videographer. I'm the girl who, whenever you meet her, a
 
 [Voice & tone](https://github.com/jakusova/english-for-designers/blob/main/Voice%20%26%20Tone.md)
 
-[Takeaways](https://jakusova.github.io/english-for-designers/takeaways/
+[Takeaways](https://jakusova.github.io/english-for-designers/takeaways/)
