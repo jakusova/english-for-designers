@@ -1,9 +1,11 @@
 # Veronika a Martin
 
+
+### LOVE IN THE MIDDLE OF A MAGICAL FOREST
+
 ![veronika-martin](https://user-images.githubusercontent.com/116068266/216764193-ff26b07f-c631-4e04-ae36-226204fc4855.jpg)
 
 
-### LOVE IN THE MIDDLE OF A MAGICAL FOREST
 
 This wedding was unique to me. Veronika and Martin are my close friends and their love story started at this children's camp. They met here as kids and got married at camp. It is true love story.
 
