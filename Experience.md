@@ -1,8 +1,9 @@
+[résumé-jakušová.pdf](https://github.com/jakusova/english-for-designers/files/10608407/resume-jakusova.pdf)
 
-
-# CV/résumé
+### CV/résumé
 
 # BE THE ENERGY YOU WANT TO ATTRACT
+
 
 ### GET IN TOUCH 
 Zuzana Jakušová
@@ -18,6 +19,7 @@ ___
 ### PERSONAL VALUES
 - Cool uder stress 
 - Lover of learning
+
 - Team player
 - Time management
 - Optimism
