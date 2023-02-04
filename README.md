@@ -10,7 +10,7 @@ I am a photographer and videographer. I'm the girl who, whenever you meet her, a
 
 [First impression](https://github.com/jakusova/english-for-designers/blob/main/First%20Impression.md)
 
-[Content first](https://github.com/jakusova/english-for-designers/blob/main/Content%20first.md)
+[Content first](content first.md)
 
 [Experience](https://github.com/jakusova/english-for-designers/blob/main/Experience.md)
 
