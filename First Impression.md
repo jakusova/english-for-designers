@@ -21,7 +21,7 @@ I have been filming and photographing weddings for three years. I like to do it 
 
 I cherish the presents of beauty and happiness all around. I still find it mysterious how much my clients always touch me heart with a feeling I have known them forever.
 
-## STORIES 2022
+## STORIES 2022 ❤️
 ### Adéla + Pavel 
 ### Nikola + Antonín 
 ### Veronika + Martin 
@@ -71,4 +71,4 @@ I always choose a different one that fits the couple and also fits the mood of t
 ![kalkulacka](https://user-images.githubusercontent.com/116068266/216763490-30ba9f33-b8e5-4d6f-8f5b-3299cba4fa5d.png)
 
 
-# TO LIVE A MEANINGFUL LIFE, YOU MUST HAVE MEANINGFUL WORK! 
+# ✨ TO LIVE A MEANINGFUL LIFE, YOU MUST HAVE MEANINGFUL WORK! ✨
