@@ -5,9 +5,13 @@ This is the way I create my texts. 🤟
 I'm here to tell your love story
 love in the middle of a magical forest 
 
+___
+
 # MY TONE
 ### frinedly, encouraging, positive
 Be the energy you want to attract. 
+
+___
 
 # MY STYLE 
 ### clear, positively language
