@@ -8,7 +8,7 @@ I am a photographer and videographer. I'm the girl who, whenever you meet her, a
 
 [Alternative text](01-alternative-text)
 
-[First impression](https://github.com/jakusova/english-for-designers/blob/main/First%20Impression.md)
+[First impression](02-first-impression)
 
 [Content first](content first.md)
 
