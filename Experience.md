@@ -52,7 +52,20 @@ ___
 - German = needs work
 
 
+___ 
+
+### EDUCATION
+#### University of Creative Communication
+2020 - present
+graphic design, Prague, bachelor's degree
+
+#### Otto Wichterle Technical High School - Náchod
+2016 - 2020
+graphic design
+
+
 ___
+
 
 ### WORK EXPERIENCE
 #### FREELANCE - Prague - PHOTO/VIDEOGRAPHER
@@ -65,7 +78,7 @@ I focus on telling love stories. Storytelling through capturing weddings, portra
 
 
 
-#### KAUFBAUER - Prague - GRAPHIC DESIGN
+#### KAUFBAUER - PRAGUE - GRAPHIC DESIGN
 
 2021 - present
 
@@ -81,18 +94,6 @@ I design infographics and photograph products for a Germany-based waste manageme
 
 I designed and managed social media content for an online service marketplace. They offer (or offered, do they still exist?) various services, from babysitting and dog walking to photography. I collaborated remotely with a small team of five for one year/six months (or how ever long you worked there).
 
- 
- 
-___ 
-
-### EDUCATION
-#### University of Creative Communication
-2020 - present
-graphic design, Prague, bachelor's degree
-
-#### Otto Wichterle Technical High School - Náchod
-2016 - 2020
-graphic design
 
 
 
