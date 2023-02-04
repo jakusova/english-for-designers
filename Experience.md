@@ -13,7 +13,7 @@ jakzuzka18@gmail.com
 
 +420 604 823 580
 
-
+___
 
 ### PERSONAL VALUES
 - Cool uder stress 
@@ -25,7 +25,7 @@ jakzuzka18@gmail.com
 - Humility
 - Creativity
 
-
+___
 
 ### SKILLS
 - Photo and video production
@@ -34,7 +34,7 @@ jakzuzka18@gmail.com
 - Visual identity
 - Typography
 
-
+___
 
 ### CREATIVE TOOLS 
 - Adobe Creative Cloud (Photoshop Illustrator
@@ -42,7 +42,7 @@ InDesign)
 - Figma
 - DaVinci Resolve
 
-
+___
 
 ### LANGUAGES
 - Czech = native
@@ -50,7 +50,7 @@ InDesign)
 - German = needs work
 
 
-
+___
 
 ### WORK EXPERIENCE
 #### FREELANCE - Prague - PHOTO/VIDEOGRAPHER
@@ -81,7 +81,7 @@ I designed and managed social media content for an online service marketplace. T
 
  
  
- 
+___ 
 
 ### EDUCATION
 #### University of Creative Communication
