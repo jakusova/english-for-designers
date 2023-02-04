@@ -6,7 +6,7 @@ I am a photographer and videographer. I'm the girl who, whenever you meet her, a
 
 # MY WORK 
 
-[Alternative text](https://github.com/jakusova/english-for-designers/blob/main/01-alternative-text/index.md)
+[Alternative text](01-alternative-text)
 
 [First impression](https://github.com/jakusova/english-for-designers/blob/main/First%20Impression.md)
 
