@@ -12,7 +12,7 @@ I am a photographer and videographer. I'm the girl who, whenever you meet her, a
 
 [Content first](03-content-first)
 
-[Experience](https://github.com/jakusova/english-for-designers/blob/main/Experience.md)
+[Experience](04-experience)
 
 [Voice & tone](05-voice-and-tone)
 
