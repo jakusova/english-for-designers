@@ -10,6 +10,7 @@ ___
 ___
 
 4) Have great English lessons with a native speaker and have fun while you learn. 
+–––
 
 5) The importance of alternative text.
 ---
