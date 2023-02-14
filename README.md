@@ -1,8 +1,8 @@
 # english-for-designers
 
-### Hi, my name is Zuzana Jakušová 
+### Hi, I'm Zuzana Jakušová 
 
-I am a photographer and videographer. I'm the girl who, whenever you meet her, always has a camera in her hand. I'm constantly fascinated by the world around me and I always try to enjoy every moment. ✨
+Photographer and videographer. The girl who, whenever you meet her, always has a camera in her hand. Constantly fascinated by the world around me and tries to enjoy every moment. ✨
 
 # My work
 
