@@ -1,4 +1,4 @@
-# FULL TIME CONTENT CREATOR
+# how to be FULL TIME CONTENT CREATOR
 
 ## _main points of the presentation_
 - AUTHENTICITY 
