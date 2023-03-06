@@ -22,7 +22,7 @@ ___
 
 ___
 
-## Your interests 
+## Communicate your interests
  _things you like or topics that are unique to you_ 
  
  - pick the topic you actually enjoy and are passionate about
