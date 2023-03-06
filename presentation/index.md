@@ -27,7 +27,7 @@ ___
  
  - pick the topic you actually enjoy and are passionate about
  - you gonna be able to hold a conversation with the audinece 
- - don't think about all the other things what makes most money
+ - don't think about all the other things that make the most money, instead do the things that make you happy. 
  
 ___
 
@@ -56,7 +56,7 @@ ___
 
 _if you want to be taken seriously and maximaze your income = take yourself, your content, your brand seriously = BE PROFESIONAL_
 
-we can still be yourself, but we needs to have a line between work 
+we can still be yourself, but we needs to have a line between work and our lives
 
 ___
 
