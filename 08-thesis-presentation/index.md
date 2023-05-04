@@ -1,7 +1,7 @@
 Hello, my name is Zuzana Jakušová and I would like to show you the presentation of my bachelor thesis.
 
-🎥 Here you can watch the video ➡️  https://youtu.be/SIRMnygnk1U
-
+  🎥 Here you can watch the video ➡️ [video](https://youtu.be/SIRMnygnk1)
+ 
 
 I would start from the very beginning, when it came time to choose the topic of my bachelor thesis, I was quite clear that I wanted to do personal branding. The reason was and is clear. I wanted to connect my bachelor's thesis to something I love and something I want to continue to pursue in the future, and I want to do it fully. My personal brand is in the wedding industry. My partner Michal Bares and I are wedding photo-video creators. 
 
