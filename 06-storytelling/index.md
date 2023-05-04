@@ -7,7 +7,7 @@ This story is about the topic of content creation and how to be a good content c
 ---
 
 
-- [Process](process)
+- [Process](process.md)
 
 ---
 
