@@ -26,5 +26,3 @@ Photographer and videographer. The girl who, whenever you meet her, always has a
 
 [Review](review)
 
-[Year End Review](year-end-review)
-
