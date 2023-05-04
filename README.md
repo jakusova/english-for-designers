@@ -19,3 +19,5 @@ Photographer and videographer. The girl who, whenever you meet her, always has a
 [Takeaways](takeaways)
 
 [Storytelling](06-storytelling)
+
+[Thesis abstract](07-thesis-abstrac)
