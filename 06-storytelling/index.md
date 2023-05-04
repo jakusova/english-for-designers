@@ -1,5 +1,13 @@
-# how to be FULL TIME CONTENT CREATOR
+# FULL TIME CONTENT CREATOR
+
+by Zuzana Jakušová
+
+This story is about the topic of content creation and how to be a good content creator. Everyone is a creator whether they want to be or not. It's up to us to use content properly to our advantage. 
+
+---
 Full presentation ⬇️⬇️⬇️⬇️⬇️
+
+--- 
 
 ## Process
 ![IMG_0425](https://user-images.githubusercontent.com/116068266/236195511-d19785bd-7b0f-4449-9b26-5375a8980f6f.jpg)
