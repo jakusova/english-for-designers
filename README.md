@@ -24,5 +24,5 @@ Photographer and videographer. The girl who, whenever you meet her, always has a
 
 [Thesis presentation](08-thesis-presentation)
 
-[Year End Review](Year-End-Review)
+[Year End Review](year-end-review)
 
