@@ -4,7 +4,14 @@
 
 Photographer and videographer. The girl who, whenever you meet her, always has a camera in her hand. Constantly fascinated by the world around me and tries to enjoy every moment. ✨
 
-### About me
+### GET IN TOUCH
+
+jakzuzka18@gmail.com
+
++420 604 823 580
+
+[resume-jakusova.pdf](https://github.com/jakusova/english-for-designers/files/11489128/resume-jakusova.pdf)
+
 
 ### Classwork
 
