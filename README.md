@@ -7,7 +7,7 @@ Photographer and videographer. The girl who, whenever you meet her, always has a
 ### GET IN TOUCH
 
 
-jakzuzka18@gmail.com
+- jakzuzka18@gmail.com
 
 +420 604 823 580
 
