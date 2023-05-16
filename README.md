@@ -4,6 +4,8 @@
 
 Photographer and videographer. The girl who, whenever you meet her, always has a camera in her hand. Constantly fascinated by the world around me and tries to enjoy every moment. ✨
 
+### About me
+
 ### Classwork
 
 [Alternative text](01-alternative-text)
