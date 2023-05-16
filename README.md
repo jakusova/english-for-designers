@@ -9,33 +9,34 @@ Photographer and videographer. The girl who, whenever you meet her, always has a
 
 - jakzuzka18@gmail.com
 
-+420 604 823 580
+- +420 604 823 580
 
-[resume-jakusova.pdf](https://github.com/jakusova/english-for-designers/files/11489128/resume-jakusova.pdf)
+- [resume-jakusova.pdf](https://github.com/jakusova/english-for-designers/files/11489128/resume-jakusova.pdf)
 
 
 ### Classwork
 
-[Alternative text](01-alternative-text)
+- [Alternative text](01-alternative-text)
 
-[First impression](02-first-impression)
+- [First impression](02-first-impression)
 
-[Content first](03-content-first)
+- [Content first](03-content-first)
 
-[Experience](04-experience)
+- [Experience](04-experience)
 
-[Voice & tone](05-voice-and-tone)
+- [Voice & tone](05-voice-and-tone)
 
-[Storytelling](06-storytelling)
+- [Storytelling](06-storytelling)
 
 ### My bachelor’s thesis
 
-[Thesis abstract](07-thesis-abstrac)
+- [Thesis abstract](07-thesis-abstrac)
 
-[Thesis presentation](08-thesis-presentation)
+- [Thesis presentation](08-thesis-presentation)
 
 ### Extra
-[Takeaways](takeaways)
 
-[Review](review)
+- [Takeaways](takeaways)
+
+- [Review](review)
 
