@@ -3,7 +3,7 @@
 # Hi, I'm Zuzana 📷
 My name is Zuzana and I’m photographer and videographer. I'm the girl who, whenever you meet her, always has a camera in her hand. Constantly fascinated by the world around me and tries to enjoy every moment. ✨
 
-### GET IN TOUCH
+### Get in touch
 
 - jakzuzka18@gmail.com
 - +420 604 823 580
