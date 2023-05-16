@@ -5,7 +5,6 @@ My name is Zuzana and I’m photographer and videographer. I'm the girl who, whe
 
 ### GET IN TOUCH
 
-
 - jakzuzka18@gmail.com
 - +420 604 823 580
 - [resume-jakusova.pdf](https://github.com/jakusova/english-for-designers/files/11489128/resume-jakusova.pdf)
